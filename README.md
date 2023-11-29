@@ -54,6 +54,7 @@ My learning journey doesn't stop here! I plan to expand my skills in the followi
 If you have any suggestions, tips, or just want to connect, feel free to reach out!
 
 LinkedIn -In progress.
+
 Twitter -In progress.
 
 **Fun Fact**
