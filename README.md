@@ -28,7 +28,6 @@ Continuing to deepen skills in Java, Python, computer systems, and advanced data
 
 ## Connect with Me
 
-- 🌐 [LinkedIn](#) - Connect on LinkedIn.
 - 🐦 [Twitter](#) - Follow for updates.
 
 ## Aspirations
